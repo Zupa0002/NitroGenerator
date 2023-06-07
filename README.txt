@@ -1,1 +1,1 @@
-obviously this does not gen actually nitro 💀💀💀💀💀💀
+this absolutely gens nitro must try it 
